@@ -1,0 +1,2 @@
+O ramo da TI que almejo trabalhar é desenvolvimento, tendo em vista minhas impressões das portas que se abrirão caso eu desenvolva as habilidades de um programador tanto no mercado de trabalho como um prestador de serviços, quanto como empreendimento pessoal.
+O tipo de emprega que eu gostaria de trabalhar seria onde houvesse flexibilidade de horário e oportunidades de crescimento e aprendizado, com uma remuneração justa. Ou de prestar meus próprios serviços como um desenvolvedor.
